@@ -4,3 +4,6 @@ _Hello there-_
 #### I love interacting with people, but keep in mind that if I'm wearing a skin that doesn't have my GitHub link or my nickname is C + H, it means I'm not in the mood for socializing today.
 
 _actually, I have many other fandoms besides sonic, but I prefer it for now_
+
+
+.           My Dicord _Cloudyqwq_
